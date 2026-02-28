@@ -1,1 +1,1 @@
-# SA_ICT10_Q3Project_Aguilar_Arianne
+# Aguilar and Matig-a's 3rd Quarter ICT project
